@@ -1,6 +1,10 @@
 外送 人˙們方便 習慣
 Favorite Social Media Platforms
 
+
+認真生活 快樂工作
+
+認真對待 認真就會帶你
 買不到麵包
 因為她很貴
 非常艱難的
