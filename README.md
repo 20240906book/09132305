@@ -3,6 +3,7 @@ Favorite Social Media Platforms
 
 買不到麵包
 因為她很貴
+非常艱難的
 
 買不到便當
 因為她很貴
