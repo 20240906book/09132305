@@ -1,6 +1,14 @@
 外送 人˙們方便 習慣
 Favorite Social Media Platforms
 
+最重要投資是人
+改善生活
+
+
+公司資金
+ 花在員工身上
+
+ 
 launch 平台
 使命 建立平台 支持別人 創業
 
