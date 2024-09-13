@@ -1,6 +1,12 @@
 外送 人˙們方便 習慣
 Favorite Social Media Platforms
 
+公司 企業 投資人 團隊
+
+員工
+口 貝 
+品牌
+印象
 
 因為人們沒有選擇
 沒有人去創造創建新的
