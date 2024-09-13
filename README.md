@@ -2,7 +2,12 @@
 Favorite Social Media Platforms
 
 launch 平台
+使命 建立平台 支持別人 創業
 
+阿里巴巴
+
+幫別人
+先 後
 太無聊了
 需要推出 平台
 推出新的功能工具
