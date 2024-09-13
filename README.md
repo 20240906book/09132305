@@ -1,6 +1,13 @@
 外送 人˙們方便 習慣
 Favorite Social Media Platforms
 
+
+成長發展
+生存
+
+生活
+太極
+
 最重要投資是人
 改善生活
 
