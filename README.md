@@ -3,7 +3,12 @@ Favorite Social Media Platforms
 
 創造它 實現他 優化她
 
+太空競賽
+ 無人跡
+ 通訊 衛星
 
+ 網路
+ 
 OPEN 運動公開賽
 持續
 
